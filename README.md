@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @JamesBrittainCode
-- 👀 I’m interested in basically anything that has to do with computers,
-- 😄 Pronouns: Child of God,
+- 👀 I’m interested in basically anything that has to do with computers!
+- 😄 Pronouns: Child of God.
 - ⚡ Fun fact: I have 5K subscribers on YouTube.
 
 <!---
